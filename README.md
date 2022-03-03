@@ -10,7 +10,7 @@ Some enticement wouldn't hurt if you really wanted it though :P
 Anything I do for free I’ll upload to a public rep so beware.
 Don’t bother asking for anything too big or boring without any compensation.
 
-Oh and you can use my code for anything you want.
+Oh and you can use my code for anything you want. Do credit me if it is used in some major part tho, please.
 Good Luck!
 
 --------
