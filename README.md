@@ -8,10 +8,10 @@ If you had a look at my code and didn’t immediately lose it, I do take request
 Some enticement wouldn't hurt if you really wanted it though :P
 
 Anything I do for free I’ll upload to a public rep so beware.
-Don’t bother asking for anything too big or boring without any compensation.
+Don’t bother asking for anything too big or boring.
 
 Oh and you can use my code for anything you want.
-But please do credit me if it is used in some major part.
+But please do credit me if it is used in some major way.
 
 Good Luck!
 
